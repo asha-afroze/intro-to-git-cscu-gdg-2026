@@ -58,10 +58,13 @@ My name is Thang Nguyen and a first year student studying CS at Toronto MU and r
 - Hi, my name is Hameedah and I'm a 3rd year CS student. My hobbies are sleeping and watching tik tok, I read sometimes too! My insta is @meeda.a ❤
 - My name is Ayan, i like coding
 Favorite artist is Post Malone and enjoying participating in hackathon.
+
+My name is Asal and I am in 2nd year CS.
+
 # Introduction
 - Name:Tao Wang
 - LinkedIn:https://www.linkedin.com/in/tao-wang-3b415724b/
 - Fun facts:
-  - I only have ear piercing on left ear.
+  - I only have ear piercing on left ear.dd\\
   - I do not know how to use LinkedIn, but I put it there anyway bcz I want connections.
  -Ins:xavierrwong
