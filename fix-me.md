@@ -24,5 +24,5 @@ Sippng some red, red wine
 
 Wine is disgusting I like vodka better smh
 
-## i'd just like to let yall
+## i'd just like to let yall know
 this is the stupidest fucking shit i have ever seen
