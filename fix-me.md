@@ -23,3 +23,6 @@ I've got a knack to relax, in my mind
 Sippng some red, red wine
 
 Wine is disgusting I like vodka better smh
+
+## i'd just like to let yall
+this is the stupidest fucking shit i have ever seen
